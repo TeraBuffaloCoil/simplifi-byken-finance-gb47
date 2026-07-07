@@ -1,4 +1,4 @@
-# 
+# Manage your money, track spending, and reach your savings goals with Simplifi by Quicken: The all-in-one financial app.
 
 
 
